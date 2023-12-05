@@ -1,0 +1,1 @@
+When Coca-Cola began to be sold in China, they used characters that would sound like "Coca-Cola" when spoken. Unfortunately, what they turned out to mean was "Bite the wax tadpole". It did not sell well
